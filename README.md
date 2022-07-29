@@ -1,0 +1,9 @@
+Sou o Silva_SP, especialista de Ciência de Dados...
+Quer aumentar os lucros de sua Empresa?
+   Seja ela, Pequena, Média ou Grande.  Posso analisar sua base de Dados e encontrar Padrões que, se aplicados  adequadamente, podem aumentar os lucros de sua Empresa...
+
+  Posso encontrar também  Caminhos que diminuam gastos que não contribuem,  para o faturamento da mesma...
+Email: ciasistemas20@gmail.com
+Whatsapp: 55 (11) 98950-1271
+
+
